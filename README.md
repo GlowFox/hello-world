@@ -1,7 +1,7 @@
 # hello-world
 
-Hello all!
+Hello to the world
 
-I like to travel, read, learn, snowboard, and ride my motorcycle.
+
 
 
