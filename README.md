@@ -2,7 +2,6 @@
 
 Hello all!
 
-Raven here. I like travelling, reading, snowboarding, and my dog.
+I like to travel, read, learn, snowboard, and ride my motorcycle.
 
-I'm also the owner of a Kawasaki Ninja and 2 budgies. 
 
